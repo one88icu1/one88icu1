@@ -1,16 +1,19 @@
-## Hi there 👋
+## Nhà Cái ONE88
 
-<!--
-**one88icu1/one88icu1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ONE88 Thưởng 18 triệu đồng cho lần nạp đầu tiên. Thưởng 15 triệu đồng khi giới thiệu bạn bè mới. Đăng ký tài khoản chính chủ nhận ngay 100K.
 
-Here are some ideas to get you started:
+- Địa chỉ: 90 Đ. Ngô Gia Tự, Đức Giang, Long Biên, Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ONE88 là 1 trong các nhà cái cá cược trực tuyến bậc nhất Châu Á, lôi kéo phần nhiều người chơi tham gia bởi sự uy tín, sản phẩm rộng rãi và nhà cung cấp chuyên nghiệp. Được thành lập rồi đi vào hoạt động từ năm 2010, nền móng đã nhanh chóng khẳng định vị thế Top đầu của mình trong thị trường cá cược trực tuyến đầy cạnh tranh.
+
+Nhà cái ONE88 với giấy phép hoạt động cá cược hợp pháp của Isle of Man Gambling Supervision Commission – đơn vị bài bạc uy tín bậc nhất thế giới, nhà cái xin cam kết mang lại cho mọi người một nền tảng vui chơi công bằng, minh bạch và an toàn tuyệt đối. bởi thế, bạn có thể im tâm đăng ký ONE88 và tham gia chơi game tại nền tảng chất lượng này.
+
+https://one88.icu/
+
+https://www.pinterest.com/one88icu1/
+
+https://www.youtube.com/channel/UCNBRKsXmnZcjNHjvmi0hWzg
+
+https://gravatar.com/one88icu1
+
+https://www.tumblr.com/one88icu1
